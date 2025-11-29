@@ -1,0 +1,1 @@
+# Task_Analyzer_for_Singularium_by_Aadya
